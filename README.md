@@ -1,1 +1,1 @@
-1
+Yangi yil
